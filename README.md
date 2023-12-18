@@ -1,5 +1,5 @@
 # Multichain_Drainer
-Buy from this id : https://t.me/suportGermany
+Buy from this id : https://t.me/iehesam
 
 # Multichain Drainer Updated ✅
 
@@ -33,4 +33,4 @@ Features:
 ➡️ Purchase guide : 
 ✔️ Subscribe to the channel and we will send you a message
 
-https://t.me/suportGermany
+https://t.me/iehesam
